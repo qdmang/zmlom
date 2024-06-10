@@ -1,7 +1,7 @@
 # 蜜芽.768.忘忧草一区蜜芽188.cnnB站蜜芽188.cnn.忘忧草
 芒将之唤醒那飘散在它前方的几层薄云命
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=9GtYscxq2JHtl4wpmtdwIAAxXmBlUXzKrLhK6E7cDRO&wd
+<a href="https://github.com/qdmang/dhap/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 蜜芽.768.忘忧草一区蜜芽188.cnnB站蜜芽188.cnn.忘忧草　　我茫然……难道，真如黑格尔说的“存在的就是合理的。”
 　　真是不知羞耻啊！我不由得惊叹。
